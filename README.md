@@ -1,113 +1,83 @@
-<h1 align="center"> ˖ ᡣ HI-HELLO .ᐟ I'м Мαтгıx , αĸα Мαтт  ݁˖ </h1>
-<h3 align="center">.*-“Nσт єνєгγтнıηg dαгĸ ıs єνıι, αηd ησт єνєгγтнıηg ιıgнт ıs sαƒє.”</h3>
-<h3 align="left">⊹ ࣪ ˖ 𝘢𝘣𝘰𝘶𝘵 𝘮𝘦 ;</h3> 
+<h1 align="center">  HI-HELLO .ᐟ I'м 𝘚𝘺𝘵𝘩𝘳𝘢𝘭𝘪𝘹 𝘢𝘬𝘢 𝘔𝘢𝘺   </h1>
+<h3 align="center"> “𝑰𝒓𝒐𝒏𝒊𝒄𝒂𝒍𝒍𝒚, 𝒃𝒆𝒕𝒘𝒆𝒆𝒏 𝒕𝒉𝒆 𝒕𝒘𝒐 𝒐𝒇 𝒖𝒔, 𝒚𝒐𝒖'𝒓𝒆 𝒎𝒐𝒓𝒆 𝒇𝒊𝒕 𝒕𝒐 𝒃𝒆 𝒂 𝒋𝒆𝒔𝒕𝒆𝒓 𝒕𝒉𝒂𝒏 𝒂 𝒌𝒊𝒏𝒈.”</h3>
+<h4 align="center"> - 𝑪𝒍𝒐𝒘𝒏𝑷𝒊𝒆𝒓𝒄𝒆 </h4> 
 
-𝘐 𝘨𝘰 𝘣𝘺 ; he / him . 𝘺𝘰𝘶 𝘤𝘢𝘯 𝘤𝘢𝘭𝘭 𝘮𝘦 𝘔𝘢𝘵𝘵, 𝘔𝘢𝘵𝘳𝘪𝘹 𝘰𝘳 𝘊𝘢𝘴𝘴𝘪𝘥𝘺 𝘧𝘰𝘳 𝘤𝘭𝘰𝘴𝘦 .ᐟ
+<h3 align="left"> ࣪ ˖ 𝘢𝘣𝘰𝘶𝘵 𝘮𝘦 , </h3> 
 
+𝘐 𝘨𝘰 𝘣𝘺 ; 𝘴𝘩𝘦 / 𝘩𝘦𝘳 . 𝘺𝘰𝘶 𝘤𝘢𝘯 𝘤𝘢𝘭𝘭 𝘮𝘦 𝘚𝘺𝘵𝘩, 𝘚𝘺𝘵𝘩𝘳𝘢𝘭𝘪𝘹 𝘰𝘳 𝘔𝘢𝘺 𝘧𝘰𝘳 𝘤𝘭𝘰𝘴𝘦 .ᐟ
 .-
 
 <h3 align="left"> ゛I αм  : </h3> 
 
 
- ◌ an αгтısт **【 Pгσƒєssıσηαι sнαdıηg 】**
+ ◌ an αгтısт **【 LOVE shading 】**
 
- ◌ Lєαгηıηg αвσυт αηıмαтıσηs **【 ıηтєгєsтєd, єηc 】**
+ ◌ Lєαгηıηg αвσυт αηıмαтıσηs **【 interested, encouraged 】**
 
- ◌ Sтσгγ / Nσνєι cгєαтσг **【 ıη-ρгσgгєss sтσгıєs 】**
+ ◌ Sтσгγ / Nσνєι cгєαтσг **【 WIPs 】**
 
- ◌ βєgıηηєг αт cσdıηg **【 ıηтєгєsтєd ıη ρгσgгαммıηg ιαηgυαgєs 】**
+ ◌ βєgıηηєг αт cσdıηg **【 Interested, encouraged 】**
 
 
 
 <h3 align="left"> ゛I ισνє : </h3> 
- ◌ 𝘊𝘳𝘦𝘢𝘵𝘪𝘯𝘨 𝘴𝘵𝘰𝘳𝘪𝘦𝘴, 𝘤𝘩𝘢𝘳𝘢𝘤𝘵𝘦𝘳𝘴, 𝘢𝘯𝘥 𝘸𝘰𝘳𝘭𝘥𝘴 `✶
+<h1> UNSTABLE SMP !!11! </h1> 
 
+ any UUsmp fan if u read this i fucking love you 
+ I love imperial fire duo so soso soososososo so so so soooo much 
  
- ◌ 𝘈𝘳𝘵, 𝘥𝘳𝘢𝘸𝘪𝘯𝘨, 𝘢𝘯𝘥 𝘦𝘹𝘱𝘳𝘦𝘴𝘴𝘪𝘯𝘨 𝘦𝘮𝘰𝘵𝘪𝘰𝘯𝘴 𝘷𝘪𝘴𝘶𝘢𝘭𝘭𝘺 ༄.°
+ Art , ANY type of art (AI IS NOT ART.) 
  
- ◌ 𝘓𝘪𝘴𝘵𝘦𝘯𝘪𝘯𝘨 𝘵𝘰 𝘱𝘦𝘰𝘱𝘭𝘦 𝘵𝘢𝘭𝘬 𝘰𝘳 𝘷𝘦𝘯𝘵 ᯓ
+ Listening to people talk or vent
  
- ◌ 𝘔𝘶𝘴𝘪𝘤 𝘵𝘩𝘢𝘵 𝘧𝘦𝘦𝘭𝘴 𝘳𝘦𝘢𝘭 𝘢𝘯𝘥 𝘢 𝘭𝘪𝘵𝘵𝘭𝘦 𝘩𝘢𝘶𝘯𝘵𝘪𝘯𝘨 ♬ .˚
+ Rain, thunder, distant noises 
  
- ◌ 𝘙𝘢𝘪𝘯, 𝘲𝘶𝘪𝘦𝘵 𝘱𝘭𝘢𝘤𝘦𝘴, 𝘢𝘯𝘥 𝘭𝘢𝘵𝘦-𝘯𝘪𝘨𝘩𝘵 𝘵𝘩𝘪𝘯𝘬𝘪𝘯𝘨 ࣪ ִֶָ☾
+ Silly stuff
  
- ◌ 𝘛𝘩𝘦 𝘣𝘢𝘭𝘢𝘯𝘤𝘦 𝘣𝘦𝘵𝘸𝘦𝘦𝘯 𝘭𝘪𝘨𝘩𝘵 𝘢𝘯𝘥 𝘥𝘢𝘳𝘬𝘯𝘦𝘴𝘴 .𖥔 ݁ ˖
- 
- ◌ 𝘋𝘦𝘦𝘱 𝘤𝘰𝘯𝘷𝘦𝘳𝘴𝘢𝘵𝘪𝘰𝘯𝘴 𝘢𝘯𝘥 𝘮𝘦𝘢𝘯𝘪𝘯𝘨𝘧𝘶𝘭 𝘤𝘰𝘯𝘯𝘦𝘤𝘵𝘪𝘰𝘯𝘴 ৎ .*
- 
- ◌ 𝘉𝘦𝘪𝘯𝘨 𝘴𝘪𝘭𝘭𝘺 𝘢𝘯𝘥 𝘤𝘩𝘦𝘦𝘳𝘧𝘶𝘭 :3 !
- 
- ◌ 𝘔𝘢𝘬𝘪𝘯𝘨 𝘱𝘦𝘰𝘱𝘭𝘦 𝘧𝘦𝘦𝘭 𝘴𝘦𝘦𝘯 𝘢𝘯𝘥 𝘢𝘱𝘱𝘳𝘦𝘤𝘪𝘢𝘵𝘦𝘥 ♡ .˖
+ Making people feel seen and appreciated like they deserve
 
- ◌ 𝘖𝘶𝘵𝘦𝘳 𝘴𝘱𝘢𝘤𝘦 𝘢𝘯𝘥 𝘴𝘵𝘢𝘳𝘴 ★ .*
+ Space, stars, animals, nature
 
- ◌ 𝘈𝘯𝘪𝘮𝘢𝘭𝘴 𝘢𝘯𝘥 𝘯𝘢𝘵𝘶𝘳𝘦 𝘪𝘯 𝘨𝘦𝘯𝘦𝘳𝘢𝘭 ݁ ˖Ი𐑼
+ Fav MC youtubers !!! ::
+
+ManePear, Baablu, Feinberg¡, Fantst¡, Wolfeei, sharpness¡, Spoke, Boosfer, Spongs, PrinceZam¡, ParrotX2, ClownPierce, FlameFrags, Wemmbu, Wifies, Jaden_MAN¡, Saps/Saparata ("WHAT.. LARPER??"), TheobaldTheBird, Squiddo, Reddoons¡, Ashswagg¡, JumperWho, MinuteTech, LettuceK¡, Ploomsy, Derapchu, Yungy, Loppezz, Camman18, JudeLow, and many others, some of these are people I haven't really watched their videos (¡) but I love their characters in general!!
+
+ ˖Ი𐑼
 
  
 <h3 align="left"> ゛I нαтє : </h3> 
- 
-ᝰ 𝘍𝘢𝘬𝘦 𝘱𝘦𝘰𝘱𝘭𝘦 𝘢𝘯𝘥 𝘴𝘩𝘢𝘭𝘭𝘰𝘸 𝘤𝘰𝘯𝘯𝘦𝘤𝘵𝘪𝘰𝘯𝘴 .
- 
-ᝰ 𝘉𝘦𝘪𝘯𝘨 𝘮𝘪𝘴𝘶𝘯𝘥𝘦𝘳𝘴𝘵𝘰𝘰𝘥 .
 
-ᝰ 𝘓𝘰𝘶𝘥, 𝘤𝘩𝘢𝘰𝘵𝘪𝘤 𝘦𝘯𝘷𝘪𝘳𝘰𝘯𝘮𝘦𝘯𝘵𝘴 .
-
-ᝰ 𝘓𝘰𝘴𝘪𝘯𝘨 𝘤𝘰𝘯𝘵𝘳𝘰𝘭 𝘰𝘧 𝘮𝘺 𝘵𝘩𝘰𝘶𝘨𝘩𝘵𝘴 𝘰𝘳 𝘦𝘮𝘰𝘵𝘪𝘰𝘯𝘴 .
-
-ᝰ 𝘉𝘶𝘭𝘭𝘺𝘪𝘯𝘨 .
-
-
-
- <h3 align="left"> ゛I sєє мγsєιƒ ıη : </h3> 
-
-
- °¸৹ 𝘖𝘸𝘭𝘴 ,  𝘚𝘯𝘰𝘸 𝘓𝘦𝘰𝘱𝘢𝘳𝘥𝘴 ,  𝘚𝘩𝘢𝘳𝘬𝘴 ,  𝘛𝘪𝘨𝘦𝘳𝘴 ,  𝘋𝘦𝘦𝘳𝘴 -.˖ ִֶָ🦈་.࿐
+BULLYING. IF I SEE ANYONE. ANY. ONE, BULLYING SOMEONE IM SLIMING THEM OUT IDFC.
   
   
   <h3 align="left"> ゛if 𝘺𝘰𝘶 : </h3> 
- ⭒ 𝘧𝘦𝘦𝘭 𝘭𝘰𝘯𝘦𝘭𝘺, 𝘵𝘢𝘭𝘬 𝘵𝘰 𝘮𝘦 𝘢𝘣𝘰𝘶𝘵 𝘺𝘰𝘶𝘳 𝘥𝘢𝘺 - 𝘦𝘮𝘰𝘵𝘪𝘰𝘯𝘴, 𝘨𝘰𝘢𝘭𝘴 𝘪𝘯𝘵𝘦𝘳𝘦𝘴𝘵𝘴 𝘰𝘳 𝘢𝘯𝘺𝘵𝘩𝘪𝘯𝘨 𝘵𝘩𝘢𝘵 𝘤𝘰𝘮𝘦𝘴 𝘶𝘱 𝘵𝘰 𝘺𝘰𝘶𝘳 𝘮𝘪𝘯𝘥 𝘸𝘪𝘵𝘩𝘰𝘶𝘵 𝘩𝘢𝘷𝘪𝘯𝘨 𝘵𝘩𝘦 𝘧𝘦𝘢𝘳 𝘰𝘧 𝘣𝘦𝘪𝘯𝘨 𝘫𝘶𝘥𝘨𝘦𝘥 𝘰𝘳 𝘪𝘨𝘯𝘰𝘳𝘦𝘥, 𝘦𝘷𝘦𝘯 𝘪𝘧 𝘐'𝘮 𝘸𝘪𝘵𝘩 𝘴𝘰𝘮𝘦𝘣𝘰𝘥𝘺 𝘦𝘭𝘴𝘦 ৲
 
- 
- ⭒ 𝘯𝘦𝘦𝘥 𝘴𝘰𝘮𝘦𝘰𝘯𝘦 𝘵𝘰 𝘷𝘦𝘯𝘵 𝘵𝘰, 𝘐'𝘭𝘭 𝘣𝘦 𝘮𝘰𝘳𝘦 𝘵𝘩𝘢𝘯 𝘨𝘭𝘢𝘥 𝘵𝘰 𝘣𝘦 𝘵𝘩𝘦𝘳𝘦 𝘧𝘰𝘳 𝘺𝘰𝘶 ৲
+Feel lonely n wanna have a talk, genuinely about everything even the stuff u think are stupid, I'm all ears, no judging or rushing. 
 
- ⭒ 𝘯𝘦𝘦𝘥 𝘢 𝘴𝘩𝘰𝘶𝘭𝘥𝘦𝘳 𝘵𝘰 𝘭𝘦𝘢𝘯 𝘰𝘯, 𝘐'𝘷𝘦 𝘨𝘰𝘵 𝘵𝘸𝘰 ৲
- 
- ⭒ 𝘸𝘢𝘯𝘵 𝘴𝘰𝘮𝘦𝘰𝘯𝘦 𝘵𝘰 𝘩𝘢𝘯𝘨 𝘰𝘶𝘵 𝘸𝘪𝘵𝘩, 𝘐'𝘭𝘭 𝘵𝘳𝘺 𝘮𝘺 𝘣𝘦𝘴𝘵 𝘵𝘰 𝘥𝘰 𝘴𝘰 ৲
+Wanna vent, I'm also here.
  
 <h3 align="left"> ゛I dısιıĸє : </h3> 
-༝. 𝘉𝘦𝘪𝘯𝘨 𝘪𝘨𝘯𝘰𝘳𝘦𝘥 & 𝘴𝘪𝘭𝘦𝘯𝘵 𝘵𝘳𝘦𝘢𝘵𝘮𝘦𝘯𝘵
-
-༝. 𝘨𝘦𝘵𝘵𝘪𝘯𝘨 𝘥𝘪𝘴𝘳𝘦𝘴𝘱𝘦𝘤𝘵𝘦𝘥 𝘶𝘯𝘭𝘦𝘴𝘴 𝘫𝘰𝘬𝘦𝘴
-
-༝. 𝘣𝘦𝘪𝘯𝘨 𝘰𝘷𝘦𝘳𝘸𝘩𝘦𝘭𝘮𝘦𝘥 𝘢𝘯𝘥 𝘨𝘦𝘵𝘵𝘪𝘯𝘨 𝘱𝘳𝘦𝘴𝘴𝘦𝘥 𝘰𝘯 .
-
-༝. 𝘨𝘦𝘵𝘵𝘪𝘯𝘨 𝘢𝘤𝘤𝘶𝘴𝘦𝘥 𝘰𝘧 𝘴𝘵𝘶𝘧𝘧 𝘐'𝘷𝘦 𝘯𝘦𝘷𝘦𝘳 𝘥𝘰𝘯𝘦 .
-
-༝. 𝘣𝘦𝘪𝘯𝘨 𝘤𝘰𝘷𝘦𝘳𝘦𝘥 𝘪𝘯 𝘱𝘰𝘯𝘺 𝘵𝘰𝘸𝘯 𝘧𝘰𝘳 𝘯𝘰 𝘳𝘦𝘢𝘴𝘰𝘯
-
-༝. 𝘰𝘷𝘦𝘳𝘵𝘩𝘪𝘯𝘬𝘪𝘯𝘨 .
+idc if u ignore but yeah it pisses me off smtimes 
 
 ___
-  sємı-dαılγ ση ρσηγ тσωη, ƒєєι ƒгєє тσ ıηтєгαcт, тнαт'd мαĸє мγ dαγ ᵎᵎ
+  rarely interact on pony town but if u wanna int whisper because I'm mostly afk (away)
   
-  . ݁₊ ⊹ . ݁˖ . ݁
+  . ݁˖ . ݁
   ___
-  prev known as  "`R1NG" , "Scarlin"/"lin" or "shawarma" heh
+  prev known as "Matt"/"Matrix" , "Cassidy" , "`R1NG" , "Scarlin"/"lin" , "shawarma" :>
   ___
-  i gen love all my friends mwah to everyone i hope everyone gets to be happy
+  I genuinely love all my friends big MWAHs to everyone i hope everyone gets to be happy and achieve everything they wanna do and accomplish <333
   ___
-  HEAVLY DNI :: if you try to bully ANYONE in front of me esp my friends, UNLESS its a joke AND they don't get hurt.
+  HEAVLY DNI :: if you try to bully ANYONE in front of me esp my friends, UNLESS its a joke AND they're fine with it and find it funny not if they're js "ok" with it.
   ___
  <img width="498" height="314" alt="Jeff The Killer Jeffrey Woods GIF - Jeff The Killer Jeffrey Woods Creepypasta - Discover   Share GIFs" src="https://github.com/user-attachments/assets/e9403c6e-d9c6-488b-80f3-54030d08fac9" />
 
 
-this guy is me trust
+this is me trust
 
 
 #Ilovejeffthekiller
 
-#IlovemywifeMyers
-
 #IloveViolenceDistrict
 
-but the newest update gives me a headache.. W devs tho
+waiting for the updates sighhhhh 
